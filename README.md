@@ -1,3 +1,2 @@
-"MALES AH BELAJAR lagi"
-hehe
-*hmmm*
+"MALES AH BELAJAR lagi" oeoahaeuofhoauefoafoauefhoaefho
+
